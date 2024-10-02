@@ -1,3 +1,2 @@
-# References
+The God Emperor Of Mankind Demands conflict!!!!!!!!!!!!!!!!!!!!!
 
-* octocat 1 😈
